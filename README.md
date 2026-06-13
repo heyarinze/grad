@@ -13,7 +13,7 @@ A single-page invitation and logistics guide for **Arinze Obiezue's graduation w
 - **Where to Stay** — nearby hotels, Airbnb/VRBO options (and a spot on my couch)
 - **Good to Know** — practical tips for the weekend
 - **RSVP** — how to let me know you're coming
-- **What We're Celebrating** — three degrees across three continents, the Social Miller Change Leadership Award, and the road that led here
+- **What We're Celebrating** — three degrees across three continents, the Miller Social Change Leadership Award, and the road that led here
 
 ## Viewing locally
 
